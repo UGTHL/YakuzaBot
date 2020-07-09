@@ -50,4 +50,5 @@ TO RUN BOT
 More improved bot?
 ----------
 
-Contact me B4$h%#0069
+Contact me [D3VBL4CK][]
+[D3VBL4CK]: https://twitter.com/d3vbl4ck
